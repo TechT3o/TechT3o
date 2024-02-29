@@ -6,7 +6,7 @@ As an active learner I am trying to pick up on new projects to cultivate my skil
 
 You can contact me through:
 
-Personal website -> [www.teopap.com](https://www.teopap.com/)
+Personal website -> [www.teo-pap.com](https://www.teo-pap.com/)
 
 email -> [th.papaiakovou@gmail.com](mailto:th.papaiakovou@gmail.com)
 
